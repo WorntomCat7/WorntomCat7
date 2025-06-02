@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @WorntomCat7
-- 👀 I’m interested in yuri manga
+- 👀 I’m interested in GL manga
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on sex
 - 📫 How to reach me: you don't
